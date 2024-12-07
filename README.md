@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @marceloifbh
+- 👀 I’m interested in tech
+- 🌱 I’m currently learning everything.
+- 💞️ I’m looking to collaborate on nothing.
